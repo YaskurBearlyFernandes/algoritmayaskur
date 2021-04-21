@@ -1,0 +1,2 @@
+# algoritmayaskur
+Yaskur Bearly Fernandes
